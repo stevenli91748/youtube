@@ -12,3 +12,4 @@
 
 # youtube教学
 * [分享一些YouTube頻道運營的方法和技巧---greyson ](https://www.youtube.com/@greysonzhang/videos)
+* [2023被問爆的Youtube Shorts賺錢模式，chatGPT幫你做shorts開啟廣告收益｜不出鏡 Make Money with Youtube Shorts using chatGPT!](https://www.youtube.com/watch?v=9-85G3OV98o)
